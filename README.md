@@ -6,5 +6,5 @@
 # *ੈ✩‧₊𝚆𝚑𝚘 𝚒𝚜 𝚝𝚑𝚎 𝚌𝚑𝚊𝚛𝚊𝚌𝚝𝚎𝚛 (𝙾𝙲) 𝚒𝚗 𝚝𝚑𝚎 𝚛𝚎𝚗𝚍𝚎𝚛𝚜
 * He is my character called **Onu**, he represent my personality, my ideas and he is what i want in my person
 
-# *ੈ✩‧₊˚𝚆𝚑𝚊𝚝 𝚒𝚜 𝚝𝚑𝚎𝚒𝚛 𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢 𝚕𝚒𝚔𝚎?
+# ՞.𐦯𝚆𝚑𝚊𝚝 𝚒𝚜 𝚝𝚑𝚎𝚒𝚛 𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢 𝚕𝚒𝚔𝚎?
 * He is a introverted person, he doesn't like play for a long time video games, he like to much to read books annnnddd... he doesn't have friends
