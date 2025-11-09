@@ -9,5 +9,5 @@
 # ՞.𐦯𝚆𝚑𝚊𝚝 𝚒𝚜 𝚝𝚑𝚎𝚒𝚛 𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢 𝚕𝚒𝚔𝚎?
 * He is a introverted person, he doesn't like play for a long time video games, he like to much to read books annnnddd... he doesn't have friends
 
-# ˎˊ˗𝙷𝚘𝚠 𝚖𝚊𝚗𝚢 𝚖𝚘𝚍𝚎𝚕𝚜 𝚒 𝚑𝚊𝚟𝚎
+# ˎˊ˗ 𝙷𝚘𝚠 𝚖𝚊𝚗𝚢 𝚖𝚘𝚍𝚎𝚕𝚜 𝚒 𝚑𝚊𝚟𝚎
 * i already have about three or fourth models of him, the last one is my favorite but... i like too much de second one
