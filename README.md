@@ -1,4 +1,10 @@
 #✧🕯⋆ 𝚁𝚎𝚗𝚍𝚎𝚛𝚜-𝙸𝚖𝚊𝚐𝚎𝚜
 
-> This is a collection of all my **Renders**
->> __ᵎ!ᵎ Some are edited in photoshop, Some are fully made in blender__
+> 𝚃𝚑𝚒𝚜 𝚒𝚜 𝚊 𝚌𝚘𝚕𝚕𝚎𝚌𝚝𝚒𝚘𝚗 𝚘𝚏 𝚊𝚕𝚕 𝚖𝚢 **𝚁𝚎𝚗𝚍𝚎𝚛𝚜**
+>> __ᵎ!ᵎ 𝚂𝚘𝚖𝚎 𝚊𝚛𝚎 𝚎𝚍𝚒𝚝𝚎𝚍 𝚒𝚗 𝚙𝚑𝚘𝚝𝚘𝚜𝚑𝚘𝚙, 𝚂𝚘𝚖𝚎 𝚊𝚛𝚎 𝚏𝚞𝚕𝚕𝚢 𝚖𝚊𝚍𝚎 𝚒𝚗 𝚋𝚕𝚎𝚗𝚍𝚎𝚛__
+
+# *ੈ✩‧₊𝚆𝚑𝚘 𝚒𝚜 𝚝𝚑𝚎 𝚌𝚑𝚊𝚛𝚊𝚌𝚝𝚎𝚛 (𝙾𝙲) 𝚒𝚗 𝚝𝚑𝚎 𝚛𝚎𝚗𝚍𝚎𝚛𝚜
+* He is my character called **Onu**, he represent my personality, my ideas and he is what i want in my person
+
+# *ੈ✩‧₊˚𝚆𝚑𝚊𝚝 𝚒𝚜 𝚝𝚑𝚎𝚒𝚛 𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢 𝚕𝚒𝚔𝚎?
+* He is a introverted person, he doesn't like play for a long time video games, he like to much to read books annnnddd... he doesn't have friends
