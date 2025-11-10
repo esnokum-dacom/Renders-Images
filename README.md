@@ -11,5 +11,11 @@
 
 # ˎˊ˗ 𝙷𝚘𝚠 𝚖𝚊𝚗𝚢 𝚖𝚘𝚍𝚎𝚕𝚜 𝚒 𝚑𝚊𝚟𝚎
 * 𝚒 𝚊𝚕𝚛𝚎𝚊𝚍𝚢 𝚑𝚊𝚟𝚎 𝚊𝚋𝚘𝚞𝚝 𝚝𝚑𝚛𝚎𝚎 𝚘𝚛 𝚏𝚘𝚞𝚛𝚝𝚑 𝚖𝚘𝚍𝚎𝚕𝚜 𝚘𝚏 𝚑𝚒𝚖, 𝚝𝚑𝚎 𝚕𝚊𝚜𝚝 𝚘𝚗𝚎 𝚒𝚜 𝚖𝚢 𝚏𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚋𝚞𝚝... 𝚒 𝚕𝚒𝚔𝚎 𝚝𝚘𝚘 𝚖𝚞𝚌𝚑 𝚍𝚎 𝚜𝚎𝚌𝚘𝚗𝚍 𝚘𝚗𝚎
-# .⋆♱ 𝙼𝚘𝚍𝚎𝚕 𝟷
-* <img src="https://github.com/user-attachments/assets/52d1ac1c-b9e7-4ded-beac-2d09cf9ba11c" width="200">
+
+# .⋆♱ 𝙼𝚘𝚍𝚎𝚕 1
+
+# .⋆♱ 𝙼𝚘𝚍𝚎𝚕 2
+
+# .⋆♱ 𝙼𝚘𝚍𝚎𝚕 3
+<img src="https://github.com/user-attachments/assets/52d1ac1c-b9e7-4ded-beac-2d09cf9ba11c" width="200">
+<img src="https://github.com/user-attachments/assets/fdc94fdf-fd24-484d-bf12-449a848e29b6" width="200">
