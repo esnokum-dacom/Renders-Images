@@ -18,5 +18,5 @@
 
 # .⋆♱ 𝙼𝚘𝚍𝚎𝚕 3
 **⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔** /  **⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
-<img src="https://github.com/user-attachments/assets/52d1ac1c-b9e7-4ded-beac-2d09cf9ba11c" width="200">
-<img src="https://github.com/user-attachments/assets/fdc94fdf-fd24-484d-bf12-449a848e29b6" width="200">
+<br><img src="https://github.com/user-attachments/assets/52d1ac1c-b9e7-4ded-beac-2d09cf9ba11c" width="200"></br>
+<br><img src="https://github.com/user-attachments/assets/fdc94fdf-fd24-484d-bf12-449a848e29b6" width="200"></br>
