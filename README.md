@@ -15,6 +15,12 @@
 # .⋆♱ 𝙼𝚘𝚍𝚎𝚕 1
 
 # .⋆♱ 𝙼𝚘𝚍𝚎𝚕 2
+<br><img src="https://github.com/user-attachments/assets/36e34aa5-b2bb-42d1-b8c9-6c6ae01eb7b7" width="200"></br>
+
+**⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
+<br><img src="https://github.com/user-attachments/assets/c2a00226-5caf-4d19-8302-914b235d4687" width="200"></br>
+
+**⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔**
 
 # .⋆♱ 𝙼𝚘𝚍𝚎𝚕 3
 **⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
