@@ -22,7 +22,8 @@
 
 <div align="center">
   <h1><strong>.⋆♱ 𝙼𝚘𝚍𝚎𝚕 1</strong></h1>
-</div><
+</div>
+
 > 𝚃𝚑𝚒𝚜 𝚒𝚜 𝚝𝚑𝚎 𝚏𝚒𝚛𝚜𝚝 𝚖𝚘𝚍𝚎𝚕 𝚒 𝚖𝚊𝚍𝚎, 𝚝𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 𝚒𝚜 𝚜𝚘 𝚜𝚙𝚎𝚌𝚒𝚊𝚕 𝚏𝚘𝚛 𝚖𝚎 𝚏𝚘𝚛... 𝚒𝚜 𝚝𝚑𝚎 **𝚋𝚊𝚜𝚎** 𝚏𝚘𝚛 𝚝𝚑𝚎 **𝚂𝚎𝚌𝚘𝚗𝚍 𝚖𝚘𝚍𝚎𝚕**
 >> 𝙸𝚜 𝚗𝚘 𝚟𝚎𝚛𝚢 𝚊𝚠𝚎𝚜𝚘𝚖𝚎, **𝚒𝚜𝚗'𝚝 𝚖𝚢 𝚏𝚒𝚛𝚝𝚜 𝚖𝚘𝚍𝚎𝚕 𝚒 𝚖𝚊𝚍𝚎**, 𝚋𝚎𝚌𝚊𝚞𝚜𝚎 𝚝𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 **𝚒 𝚖𝚊𝚍𝚎 𝟹 𝚢𝚎𝚊𝚛𝚜 𝚊𝚐𝚘**
 
@@ -34,6 +35,7 @@
 <div align="center">
   <h1><strong>.⋆♱ 𝙼𝚘𝚍𝚎𝚕 2</strong></h1>
 </div>
+
 > This model is so **special for me**, was the best model i made, for one reason... this model **have many things unlike the first model**, and this model represent more **things i love**
 >> 𝚃𝚑𝚒𝚜 𝚒𝚜 𝚊 **𝚌𝚘𝚙𝚢 𝚙𝚊𝚜𝚝𝚎 𝚘𝚏 𝚝𝚑𝚎 𝚏𝚒𝚛𝚜𝚝 𝚖𝚘𝚍𝚎𝚕**, 𝚋𝚞𝚝... 𝚗𝚘𝚝 **𝚑𝚞𝚗𝚍𝚛𝚎𝚍 𝚘𝚏 𝚝𝚑𝚎 𝚖𝚘𝚍𝚎𝚕**, 𝚝𝚑𝚎 𝚌𝚕𝚘𝚝𝚑𝚎𝚜 𝚒 𝚖𝚘𝚍𝚎𝚕 **𝚏𝚞𝚕𝚕𝚢 𝚏𝚛𝚘𝚖 𝚜𝚌𝚛𝚊𝚝𝚌𝚑**
 
@@ -46,6 +48,7 @@
 <div align="center">
   <h1><strong>.⋆♱ 𝙼𝚘𝚍𝚎𝚕 3</strong></h1>
 </div>
+
 >Before this model, i was **practicing modelling of characters**, not fully on my time but when i saw the second model i **decided to remake this, from scratch**
 >𝚃𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 𝚒 𝚍𝚎𝚌𝚒𝚍𝚎 𝚝𝚘 **𝚒𝚗𝚟𝚎𝚛𝚝 𝚑𝚘𝚞𝚛𝚜 (𝚞𝚗𝚏𝚘𝚛𝚝𝚞𝚗𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚜 𝟸 𝚍𝚊𝚢𝚜)** 𝚊𝚗𝚍 𝚝𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 𝚑𝚊𝚟𝚎 𝚝𝚑𝚎 **𝚝𝚑𝚒𝚗𝚐𝚜 𝚞𝚗𝚕𝚒𝚔𝚎 𝚝𝚑𝚎 𝚜𝚎𝚌𝚘𝚗𝚍 𝚖𝚘𝚍𝚎𝚕 𝚍𝚘𝚎𝚜𝚗'𝚝 𝚑𝚊𝚟𝚎**, 𝚒 𝚕𝚘𝚟𝚎 𝚝𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 𝚏𝚘𝚛 𝚘𝚗𝚎 𝚛𝚎𝚊𝚜𝚘𝚗, 𝚑𝚊𝚟𝚎 𝚝𝚑𝚎 𝚌𝚕𝚘𝚝𝚑𝚎𝚜 𝚕𝚒𝚔𝚎 **𝚝𝚎𝚊𝚌𝚑𝚠𝚎𝚊𝚛, 𝚊𝚗𝚍 𝚏𝚒𝚗𝚐𝚎𝚛𝚜...**
 
