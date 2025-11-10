@@ -24,7 +24,8 @@
 # .⋆♱ 𝙼𝚘𝚍𝚎𝚕 2
 > This model is so **special for me**, was the best model i made, for one reason... this model **have many things unlike the first model**, and this model represent more **things i love**
 >> 𝚃𝚑𝚒𝚜 𝚒𝚜 𝚊 **𝚌𝚘𝚙𝚢 𝚙𝚊𝚜𝚝𝚎 𝚘𝚏 𝚝𝚑𝚎 𝚏𝚒𝚛𝚜𝚝 𝚖𝚘𝚍𝚎𝚕**, 𝚋𝚞𝚝... 𝚗𝚘𝚝 **𝚑𝚞𝚗𝚍𝚛𝚎𝚍 𝚘𝚏 𝚝𝚑𝚎 𝚖𝚘𝚍𝚎𝚕**, 𝚝𝚑𝚎 𝚌𝚕𝚘𝚝𝚑𝚎𝚜 𝚒 𝚖𝚘𝚍𝚎𝚕 **𝚏𝚞𝚕𝚕𝚢 𝚏𝚛𝚘𝚖 𝚜𝚌𝚛𝚊𝚝𝚌𝚑**
-**⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
+
+>**⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
 <br><img src="https://github.com/user-attachments/assets/c2a00226-5caf-4d19-8302-914b235d4687" width="200"></br>
 
 >**⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔**
