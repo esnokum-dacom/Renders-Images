@@ -17,6 +17,7 @@
 # .⋆♱ 𝙼𝚘𝚍𝚎𝚕 2
 
 # .⋆♱ 𝙼𝚘𝚍𝚎𝚕 3
-<br>**⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔** /  **⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**</br>
-<img src="https://github.com/user-attachments/assets/52d1ac1c-b9e7-4ded-beac-2d09cf9ba11c" width="200">
-<img src="https://github.com/user-attachments/assets/fdc94fdf-fd24-484d-bf12-449a848e29b6" width="200">
+**⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
+<br><img src="https://github.com/user-attachments/assets/52d1ac1c-b9e7-4ded-beac-2d09cf9ba11c" width="200"></br>
+**⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔**
+<br><img src="https://github.com/user-attachments/assets/fdc94fdf-fd24-484d-bf12-449a848e29b6" width="200"></br>
