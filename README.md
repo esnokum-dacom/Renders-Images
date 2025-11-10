@@ -17,9 +17,9 @@
 >> 𝙸𝚜 𝚗𝚘 𝚟𝚎𝚛𝚢 𝚊𝚠𝚎𝚜𝚘𝚖𝚎, **𝚒𝚜𝚗'𝚝 𝚖𝚢 𝚏𝚒𝚛𝚝𝚜 𝚖𝚘𝚍𝚎𝚕 𝚒 𝚖𝚊𝚍𝚎**, 𝚋𝚎𝚌𝚊𝚞𝚜𝚎 𝚝𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 **𝚒 𝚖𝚊𝚍𝚎 𝟹 𝚢𝚎𝚊𝚛𝚜 𝚊𝚐𝚘**
 
 >**⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔**
-<br><img src="https://github.com/user-attachments/assets/45b06c33-04c1-45ff-85ae-770aac995f8b" width="200"></br>
->**⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
 <br><img src="https://github.com/user-attachments/assets/e0ddc6f8-68c8-4edf-a2d4-db3fd24573f3" width="200"></br>
+>**⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
+<br><img src="https://github.com/user-attachments/assets/45b06c33-04c1-45ff-85ae-770aac995f8b" width="200"></br>
 
 # .⋆♱ 𝙼𝚘𝚍𝚎𝚕 2
 > This model is so **special for me**, was the best model i made, for one reason... this model **have many things unlike the first model**, and this model represent more **things i love**
@@ -31,6 +31,8 @@
 >**⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔**
 <br><img src="https://github.com/user-attachments/assets/36e34aa5-b2bb-42d1-b8c9-6c6ae01eb7b7" width="200"></br>
 # .⋆♱ 𝙼𝚘𝚍𝚎𝚕 3
+>Before this model, i was **practicing modelling of characters**, not fully on my time but when i saw the second model i **decided to remake this, from scratch**
+>𝚃𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 𝚒 𝚍𝚎𝚌𝚒𝚍𝚎 𝚝𝚘 **𝚒𝚗𝚟𝚎𝚛𝚝 𝚑𝚘𝚞𝚛𝚜 (𝚞𝚗𝚏𝚘𝚛𝚝𝚞𝚗𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚜 𝟸 𝚍𝚊𝚢𝚜)** 𝚊𝚗𝚍 𝚝𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 𝚑𝚊𝚟𝚎 𝚝𝚑𝚎 **𝚝𝚑𝚒𝚗𝚐𝚜 𝚞𝚗𝚕𝚒𝚔𝚎 𝚝𝚑𝚎 𝚜𝚎𝚌𝚘𝚗𝚍 𝚖𝚘𝚍𝚎𝚕 𝚍𝚘𝚎𝚜𝚗'𝚝 𝚑𝚊𝚟𝚎**, 𝚒 𝚕𝚘𝚟𝚎 𝚝𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 𝚏𝚘𝚛 𝚘𝚗𝚎 𝚛𝚎𝚊𝚜𝚘𝚗, 𝚑𝚊𝚟𝚎 𝚝𝚑𝚎 𝚌𝚕𝚘𝚝𝚑𝚎𝚜 𝚕𝚒𝚔𝚎 **𝚝𝚎𝚊𝚌𝚑𝚠𝚎𝚊𝚛, 𝚊𝚗𝚍 𝚏𝚒𝚗𝚐𝚎𝚛𝚜...**
 **⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
 <br><img src="https://github.com/user-attachments/assets/52d1ac1c-b9e7-4ded-beac-2d09cf9ba11c" width="200"></br>
 **⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔**
