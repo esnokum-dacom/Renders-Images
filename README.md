@@ -33,7 +33,8 @@
 # .⋆♱ 𝙼𝚘𝚍𝚎𝚕 3
 >Before this model, i was **practicing modelling of characters**, not fully on my time but when i saw the second model i **decided to remake this, from scratch**
 >𝚃𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 𝚒 𝚍𝚎𝚌𝚒𝚍𝚎 𝚝𝚘 **𝚒𝚗𝚟𝚎𝚛𝚝 𝚑𝚘𝚞𝚛𝚜 (𝚞𝚗𝚏𝚘𝚛𝚝𝚞𝚗𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚜 𝟸 𝚍𝚊𝚢𝚜)** 𝚊𝚗𝚍 𝚝𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 𝚑𝚊𝚟𝚎 𝚝𝚑𝚎 **𝚝𝚑𝚒𝚗𝚐𝚜 𝚞𝚗𝚕𝚒𝚔𝚎 𝚝𝚑𝚎 𝚜𝚎𝚌𝚘𝚗𝚍 𝚖𝚘𝚍𝚎𝚕 𝚍𝚘𝚎𝚜𝚗'𝚝 𝚑𝚊𝚟𝚎**, 𝚒 𝚕𝚘𝚟𝚎 𝚝𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 𝚏𝚘𝚛 𝚘𝚗𝚎 𝚛𝚎𝚊𝚜𝚘𝚗, 𝚑𝚊𝚟𝚎 𝚝𝚑𝚎 𝚌𝚕𝚘𝚝𝚑𝚎𝚜 𝚕𝚒𝚔𝚎 **𝚝𝚎𝚊𝚌𝚑𝚠𝚎𝚊𝚛, 𝚊𝚗𝚍 𝚏𝚒𝚗𝚐𝚎𝚛𝚜...**
-**⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
+
+>**⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
 <br><img src="https://github.com/user-attachments/assets/52d1ac1c-b9e7-4ded-beac-2d09cf9ba11c" width="200"></br>
-**⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔**
+>**⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔**
 <br><img src="https://github.com/user-attachments/assets/fdc94fdf-fd24-484d-bf12-449a848e29b6" width="200"></br>
