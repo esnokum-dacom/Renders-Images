@@ -28,9 +28,10 @@
 >> 𝙸𝚜 𝚗𝚘 𝚟𝚎𝚛𝚢 𝚊𝚠𝚎𝚜𝚘𝚖𝚎, **𝚒𝚜𝚗'𝚝 𝚖𝚢 𝚏𝚒𝚛𝚝𝚜 𝚖𝚘𝚍𝚎𝚕 𝚒 𝚖𝚊𝚍𝚎**, 𝚋𝚎𝚌𝚊𝚞𝚜𝚎 𝚝𝚑𝚒𝚜 𝚖𝚘𝚍𝚎𝚕 **𝚒 𝚖𝚊𝚍𝚎 𝟹 𝚢𝚎𝚊𝚛𝚜 𝚊𝚐𝚘**
 
 >**⭑.ᐟ 𝙱𝚕𝚊𝚌𝚔**
-<br><img src="https://github.com/user-attachments/assets/e0ddc6f8-68c8-4edf-a2d4-db3fd24573f3" width="200"></br>
->**⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
 <br><img src="https://github.com/user-attachments/assets/45b06c33-04c1-45ff-85ae-770aac995f8b" width="200"></br>
+>**⭑.ᐟ 𝙲𝚘𝚕𝚘𝚛**
+<br><img src="https://github.com/user-attachments/assets/e0ddc6f8-68c8-4edf-a2d4-db3fd24573f3" width="200"></br>
+
 
 <div align="center">
   <h1><strong>.⋆♱ 𝙼𝚘𝚍𝚎𝚕 2</strong></h1>
